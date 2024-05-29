@@ -3,4 +3,4 @@
 <h5>but that is not fixed , for each & every os it goes different.</h5>
 
   👉  So explore it and groove with this funny & simple facilities of Text To Speech technology.
-  <h4> 👉 By using this BOT </h4>
+  <h4> 👉 By using this BOT-Cheats</h4>
